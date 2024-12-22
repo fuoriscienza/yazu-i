@@ -1,1 +1,1 @@
-# yazui.xyz
+# yazu-i
